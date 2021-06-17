@@ -7,6 +7,6 @@ I would be happy to collaborate on ML-based projects.
 
 [Mail](vbagaria93@gmail.com)
 
-[LinkedIn](linkedin.com/in/vishal-bagaria-2b7b1a202)
+[LinkedIn](https://www.linkedin.com/in/vbagaria93/)
 
 [Twitter](https://twitter.com/VishalBagaria13)
