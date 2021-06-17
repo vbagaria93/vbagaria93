@@ -6,5 +6,7 @@ I'm a beginner and my current areas of interest include Machine Learning, Deep l
 I would be happy to collaborate on ML-based projects.
 
 [Mail](vbagaria93@gmail.com)
+
 [LinkedIn](linkedin.com/in/vishal-bagaria-2b7b1a202)
+
 [Twitter](https://twitter.com/VishalBagaria13)
